@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **fauzan3596@gmail.com**
 
-- 📄 Know about my experiences [https://bit.ly/mfauzanrmd-resume](https://bit.ly/mfauzanrmd-resume)
+- 📄 Know about my experiences [bit.ly/mfauzanrmd-resume](https://bit.ly/mfauzanrmd-resume)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
